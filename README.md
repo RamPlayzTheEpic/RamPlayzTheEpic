@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @RamPlayzTheEpic
 - 👀 I’m interested in gaming
-- 🌱 I’m currently learning python and x of death
+- 🌱 I’m currently learning Java, Html, CSS, JS, And Others!
